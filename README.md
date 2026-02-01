@@ -1,7 +1,5 @@
 ## 🌷 Hello, I’m Nikz!
 
-━━━ ✦ ✨ ✦ ━━━
-
 - 💻 CS student on a coding journey  
 - 🐱 Loves building cute little projects  
 - 🌱 Learning something new every day  
